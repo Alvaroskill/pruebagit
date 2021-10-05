@@ -17,5 +17,5 @@ Les gallines, casi seguro, rompen las limitaciones de la oposición binaria. El 
 
 Aquí voy a insertar la imagen de octocat:
 
-<img src="github-octocat.png">
+<img src="img/github-octocat.png">
 
