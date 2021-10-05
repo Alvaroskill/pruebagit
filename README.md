@@ -10,6 +10,6 @@ _Un giro inesperado arremetió contra Donald Trump, contra su falta de respeto a
 
 ***La sororidad sale a la luz. El heteropatriarcado defiende los derechos de las mujeres de todas partes del mundo en un movimiento feminista interseccional. La lucha feminista es mutable y transita de un género a otro. Tanto el feminismo abolicionista como el transfeminismo luchan contra la lógica falocéntrica dominante. 
 Frente al discurso androcéntrico, el feminismo elabora estrategias de resistencia al patriarcado. El género incorporará las observaciones que se consideren relevantes. Las personas trans y no-binarias sufren una opresión por parte del patriarcado y el capitalismo. 
-Les gallines, casi seguro, rompen las limitaciones de la oposición binaria. El feminismo lucha por conseguir la igualdad salarial. Las personas que no se sienten representadas en el binarismo de género, de forma consensuada, se colocan el pussy hat.**
+Les gallines, casi seguro, rompen las limitaciones de la oposición binaria. El feminismo lucha por conseguir la igualdad salarial. Las personas que no se sienten representadas en el binarismo de género, de forma consensuada, se colocan el pussy hat.***
 
 
